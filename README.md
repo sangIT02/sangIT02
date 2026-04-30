@@ -1,5 +1,4 @@
-## Hi there 👋
-# 💫 About Me:
+
 Hi there, I'm Nguyễn Văn Sáng! 👋<br><br>
 
 
